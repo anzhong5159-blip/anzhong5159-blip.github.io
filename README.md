@@ -1,1 +1,1 @@
-# anzhong5159-blip.github.io
+# anzhong5159-blip.gosenroots.negashi
